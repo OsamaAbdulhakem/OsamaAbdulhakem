@@ -17,6 +17,13 @@ Marketing Manager focused on digital marketing strategy, brand management and ca
 - **Content Creator & Account Manager**, ESM (Jun 2024 - Jun 2025)
 - **Freelance Digital Marketing & Social Media Specialist** (Jun 2022 - Present)
 
+## Selected Projects & Achievements
+
+- 100% organic growth campaign (no paid ads): audience research, content direction and team supervision - Pharmacology
+- Website UX overhaul: +95% user-experience satisfaction, 100% on-time delivery - Pharmacology
+- Website restructuring & SEO: +90% engagement, -75% delivery errors - ESM
+- Freelance digital marketing for 7 brands across Egypt & the GCC: +65% social engagement
+
 ## Education
 
 B.Sc. Computer Engineering, Pharos University in Alexandria (2024)
